@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, Im Srija Sarkar<br>Im currently fucked up<br>I love Dancing💃
+Hello, Im Srija Sarkar<br>Im currently pursuing B-Tech at Techno Main Salt Lake<br>I love Dancing💃
 
 
 ## 🌐 Socials:
